@@ -3,6 +3,7 @@
 ---
 
 # Spicy Salmon Crispy Rice
+![Spicy Salmon Crispy Rice.png|400](/img/user/Images/Spicy%20Salmon%20Crispy%20Rice.png)
 ### Ingredients
 - 0.54 lb sushi-grade salmon
 - 1 ½ tbsp sweetfish roe

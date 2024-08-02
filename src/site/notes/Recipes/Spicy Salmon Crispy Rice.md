@@ -32,3 +32,5 @@
 8. Slice the fattened rice into rectangles. 
 9. In a pan, add oil and fry the rice rectangles on both sides. 
 10. Top with the salmon and a thinly sliced red radish, jalapeno, roasted black sesame seeds, and roasted sesame seeds. 
+
+[Source](https://www.instagram.com/reel/C82IRslhC3H/?utm_source=ig_web_copy_link&igsh=MzRlODBiNWFlZA==) 

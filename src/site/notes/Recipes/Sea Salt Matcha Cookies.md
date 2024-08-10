@@ -4,7 +4,7 @@
 
 # Sea Salt Matcha Cookies
 ### Ingredients
-- 1 stick of butter
+- 1 stick of unsalted butter
 - 200g all-purpose flour
 - ½ tsp baking powder
 - ½ tsp baking soda

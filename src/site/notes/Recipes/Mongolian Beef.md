@@ -23,7 +23,7 @@
 1. Place beef slices in a bowl, add cornstarch and stir to completely coat.
 2. In a bowl, combine the ingredients for the sauce and stir until well combined, set aside.
 3. In a large skillet or wok, heat 1 tbsp oil with 1 tbsp butter over medium/high heat. Once the skillet is hot, add the carrot and peppers and stir fry until crisp-tender or to your desired tenderness, stirring frequently. Remove the vegetables to a separate plate.
-4. Increase to high heat and add 1 tbsp oil. Once hot, add the beef and sear for about 2 minutes per side to create a crispy coating. Add more oil if the skillet seems dry. Do not crowd the pan and cook the beef in batches if needed. Pay attention to it while cooking to make sure it fries properly or else it won't be crispy. 
+4. Increase to high heat and add 1 tbsp oil. Once hot, add the beef and sear for about 3 minutes per side to create a crispy coating. Add more oil if the skillet seems dry. Do not crowd the pan and cook the beef in batches if needed. Pay attention to it while cooking to make sure it fries properly or else it won't be crispy. 
 5. Add the vegetables back into the skillet with the green onion. Add the sauce and stir to combine. Turn heat to medium/low and simmer until the sauce thickens, about 3 minutes. Garnish with sesame seeds if desired and serve.
 
 [Source](https://natashaskitchen.com/mongolian-beef/) 
